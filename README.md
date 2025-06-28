@@ -1,1 +1,1 @@
-## Perplexity aliternative with all the best features you have dreamt of.
+## Perplexity alternative with all the best features you have dreamt of.
